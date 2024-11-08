@@ -46,7 +46,7 @@ Through this project, I deepened my knowledge of women's rights in a professiona
 
 - [Nassim EL HADDAD](https://www.linkedin.com/in/nassim-elhaddad/)
 - [Chadi Manglé](https://www.linkedin.com/in/chadi-mangl%C3%A9-362b08265/)
-- [Lucas Dréano](https://www.linkedin.com/in/lucas-dreano-9b3bab259/))
+- [Lucas Dréano](https://www.linkedin.com/in/lucas-dreano-9b3bab259/)
 - [Ilyes Belkhir](https://www.linkedin.com/in/ilyes-belkhir/)
 
 ---
